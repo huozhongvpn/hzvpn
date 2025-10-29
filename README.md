@@ -13,7 +13,7 @@
 
 ---
 ### 点击右上角在浏览器打开下载
-#### :arrow_double_down: [官方网站链接](http://vpn.my)
+#### :arrow_double_down: [官方网站链接](http://hzhzhz.cc)
 #### :arrow_double_down: [下载地址](http://vpn.my)
 
 
